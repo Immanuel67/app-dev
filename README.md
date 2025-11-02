@@ -38,7 +38,7 @@ Every season shows how people adapt, break, and rebuild hope in a hopeless world
 ---
 
 ## 🖼️ Favorite Scene
-![Rick and Daryl](https://upload.wikimedia.org/wikipedia/en/9/97/The_Walking_Dead_season_11_poster.jpg)
+![Rick and Daryl](https://www.youtube.com/watch?v=UQcW8LO3rmw)
 
 ---
 
