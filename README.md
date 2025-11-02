@@ -38,7 +38,7 @@ Every season shows how people adapt, break, and rebuild hope in a hopeless world
 ---
 
 ## 🖼️ Favorite Scene
-![Rick and Daryl](https://www.youtube.com/watch?v=UQcW8LO3rmw)
+![Rick and Daryl](https://www.ajc.com/resizer/v2/MSEODNA52DFO2CKVQOERRVEV7E.jpg?auth=6ade9af96d1cfc760cc43658491aa19fcc9308538a2329e369a7efbcf642153d&width=1600&height=900&smart=true)
 
 ---
 
